@@ -1,0 +1,1 @@
+1. Hérna er smá concept fyrir síðuna og logo
